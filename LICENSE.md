@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with ultimate geckoterminal sniper bot | sandwich-attack-execution + take-profit, the #1 geckoterminal sniper bot. Includes sandwich-attack-execution and
 
 
 
